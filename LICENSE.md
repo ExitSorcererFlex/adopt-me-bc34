@@ -1,4 +1,4 @@
-
+adopt me Scripts secret offers the most advanced adopt me Script, with one-hit kill and auto-heal. Perfect for dominating any match.
 
 
 
